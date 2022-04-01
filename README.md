@@ -10,5 +10,4 @@ Then answer in the space below each question:
 3. lobster
 
 
-Now click the green 'commit changes' button at the bottom.
-
+we all have issues blah blah blah
