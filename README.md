@@ -8,6 +8,4 @@ Then answer in the space below each question:
 2. Alomari
 
 3. lobster
-
-
-we all have issues blah blah blah
+hfsadjklfsdj fklsdajf ldskjfsklj sdaj;f skldjfsak;djfsa;f
